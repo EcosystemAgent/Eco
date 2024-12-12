@@ -1,6 +1,6 @@
 # Ecosystem Agents
 
-![Screenshot 2024-12-11 135215](https://github.com/user-attachments/assets/169e8db5-dd0c-49e1-814f-2a5d38e27e62)
+https://pbs.twimg.com/profile_images/1866964738724466688/RoZg1gm1_400x400.jpg
 
 
 
