@@ -1,8 +1,6 @@
 # Ecosystem Agents
 
-https://pbs.twimg.com/profile_images/1866964738724466688/RoZg1gm1_400x400.jpg
-
-
+![Screenshot-2024-12-11-135215](https://github.com/user-attachments/assets/1023c3af-1120-4b1b-9984-cadebb8cbaed)
 
 Environment Agents
 Environment Agents
